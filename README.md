@@ -1,7 +1,7 @@
 - 👋 Olá, meu nome é Rodrigo
 -   👀 Sou estudante do 1°B na escola Leonardo Vilas Boas, na cidade de Osasco/SP.
 - 🌱 Estou aprendendo a usar o Alura e outras plataformas.
-- 💞️ Nas minhas horas vagas eu gosto de Aprender a tocar violão
+- 💞️ Nas minhas horas vagas eu gosto de Aprender a tocar violão.
 - 📫 Meu sonho é
 - 😄 Contato: email: rstdonf@gmail.com . 00001118961754sp@al.educacao.sp.gov.br
 - ⚡ ![]https://tenor.com/qLQ3TKusMr.gif
